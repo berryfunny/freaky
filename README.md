@@ -1,4 +1,4 @@
-# freaky
+# freaky (UPDATE: ignore this repository, rin is a bad person)
 EVERY FREAKY THING FROM RIN  
 CD!“I'M TELLING DAD!”c00lkidd] whispers: He once slapped it across my face having pre-***  
 daddy] thinks: good two-time.. ~ telling daddy's secrets so they're ALL intimidated.  
